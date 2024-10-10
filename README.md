@@ -24,12 +24,11 @@ Here are some glimpses of my project!!
 
 ![Screenshot (5)](https://github.com/user-attachments/assets/f7728a08-5590-4230-9986-c98f97a0e52e)
 
+![Screenshot (6)](https://github.com/user-attachments/assets/9b3be75d-90e8-42b1-aa53-7df45f96e30b)
 
-![Screenshot (135)](https://github.com/user-attachments/assets/197ad59e-a6ac-4f7e-86ac-11bdc5e078c0)
+![Screenshot (7)](https://github.com/user-attachments/assets/1fcd4df3-6f1e-4040-b0fa-9535dc9e696b)
 
-![Screenshot (136)](https://github.com/user-attachments/assets/59c9c9a7-065a-4c8a-8c7b-93eb92faab54)
-
-![Screenshot (137)](https://github.com/user-attachments/assets/bd38b94d-3ac1-476b-b325-3b091659692e)
+![Screenshot (8)](https://github.com/user-attachments/assets/8d220582-b74c-4a9d-b067-4080c997a057)
 
 Thanks for reviewing!!😊
 
