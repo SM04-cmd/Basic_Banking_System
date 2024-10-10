@@ -20,7 +20,7 @@ How It Works :-
 
 Here are some glimpses of my project!!
 
-![Screenshot (133)](https://github.com/user-attachments/assets/903a6b8a-cb54-4d4f-b08e-3fbed21ac01a)
+![Screenshot (4)](https://github.com/user-attachments/assets/eeb2e6e7-6f93-4d41-a646-3d581b3aeaed)
 
 ![Screenshot (134)](https://github.com/user-attachments/assets/12947af9-099a-44fe-af6c-5df54a98c636)
 
