@@ -22,7 +22,8 @@ Here are some glimpses of my project!!
 
 ![Screenshot (4)](https://github.com/user-attachments/assets/eeb2e6e7-6f93-4d41-a646-3d581b3aeaed)
 
-![Screenshot (134)](https://github.com/user-attachments/assets/12947af9-099a-44fe-af6c-5df54a98c636)
+![Screenshot (5)](https://github.com/user-attachments/assets/f7728a08-5590-4230-9986-c98f97a0e52e)
+
 
 ![Screenshot (135)](https://github.com/user-attachments/assets/197ad59e-a6ac-4f7e-86ac-11bdc5e078c0)
 
